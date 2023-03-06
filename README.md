@@ -1,0 +1,1 @@
+# beautylaser2.github.io
